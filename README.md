@@ -1,2 +1,2 @@
 # archive
-All the MediaParlour archives: nonsenses, artworks, and more.
+All the MediaPlay Discord archives: nonsenses, artworks, and more.
